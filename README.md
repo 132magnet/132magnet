@@ -6,3 +6,4 @@ ABOUT ME:
 - 📫 How to reach me c132magnet@gmail.com.
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: I started making games when I was 9.
+- 🌐 My website: https://132magnet.com
